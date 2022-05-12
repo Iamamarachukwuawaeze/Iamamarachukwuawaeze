@@ -2,7 +2,8 @@
 - 👀 I’m interested in Blockchain
 - 🌱 I’m currently learning product design 
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me -wa.me/+2348162832002
+- 📫 How to reach me -wa.me/+2348162832002/amarachukwuawaeze@gmail
+.com
 
 <!---
 Iamamarachukwuawaeze/Iamamarachukwuawaeze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
